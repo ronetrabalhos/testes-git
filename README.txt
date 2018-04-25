@@ -1,0 +1,1 @@
+Quem ta lendo é gay.
